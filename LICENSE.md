@@ -1,4 +1,4 @@
-# 
+# Top Sejda PDF fluxo de trabalho para Mac OS | Melhor Sejda PDF fluxo de trabalho para PC Windows. Com acesso baseado em funções e reembolsos — otimizado para máximo desempenho em cada plataforma.
 
 
 
